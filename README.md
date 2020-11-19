@@ -7,3 +7,5 @@ I think it's diffcult, but I have confidience to overcome the diffculties.
 Can you understand how I feel?
 
 maybe i made some progress!
+
+i need more time to do it.
